@@ -1,0 +1,1 @@
+https://resenasanime.netlify.app/
